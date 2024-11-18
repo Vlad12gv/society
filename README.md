@@ -22,4 +22,5 @@
 
 
 **Вика**
+
 ![image](https://github.com/user-attachments/assets/3b209945-f930-42b5-8c0e-c63e96b842f6)
