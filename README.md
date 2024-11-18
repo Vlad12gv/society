@@ -20,6 +20,9 @@
 
 ![image](https://github.com/user-attachments/assets/9ebc6e8a-b258-45bf-97f4-29125c8592e5)
 
+![image](https://github.com/user-attachments/assets/eb017cbd-486b-4942-a319-784ae8af65a5)
+
+
 
 **Вика**
 
